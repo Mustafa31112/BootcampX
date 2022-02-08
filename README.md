@@ -1,4 +1,0 @@
-# BootcampX
-# BOOTCAMPX
-# BOOTCAMPX
-# BootcampX
